@@ -75,7 +75,7 @@ If you decide to message me directly , kindly state the reason for your inquiry.
 
 Mail - therealdivinehealer@gmail.com
 
-What's app — +1980 459 9063
+What's app — +1973 573 3660
 
 Telegram +1747 321 3740
 
